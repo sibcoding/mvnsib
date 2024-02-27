@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **rahmanmansib98@gmail.com**
 
-- My Résumé [https://drive.google.com/file/d/1vl6OqfA1-mtnp8euciLFW5DgF3S_YNi3/view?usp=sharing](https://drive.google.com/file/d/1vl6OqfA1-mtnp8euciLFW5DgF3S_YNi3/view?usp=sharing)
+- 📝  My [CV](https://drive.google.com/file/d/1vl6OqfA1-mtnp8euciLFW5DgF3S_YNi3/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
